@@ -1,7 +1,7 @@
               
-<p>BUAN
+<p>
                                            
-<p>no hay capitalismo sin propiedad privada.
+<p>Una vez fuera de la carpa  ...no hay capitalismo sin propiedad privada.
 <p>metro cuadrado (m2): unidad basica de superficie.
 <p>libertad: estar en paz, al abrigo de daños y de amenazas.  
 <p>BUAN: vivir, habitar, cultivar, residir, convertirse en.
